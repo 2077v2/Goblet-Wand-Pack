@@ -1,4 +1,5 @@
-### Collection Ver 1.3 
+IF THE DESCRIPTION DOESNT LOAD CLICK [HERE](https://next.nexusmods.com/hogwartslegacy/collections/pugmsr?tab=about)
+### Collection Rev 4 
 
 ![](https://i.imgur.com/YHqWGR7.png)
 
